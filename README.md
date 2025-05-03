@@ -72,4 +72,4 @@ To analyze how customers perceive McDonald's in terms of food quality, value, se
 
 ## 📬 Contact
 
-For questions or collaborations, feel free to reach out via [LinkedIn]([(https://www.linkedin.com/in/aniket-gupta-90b49725a/)]) or email.
+For questions or collaborations, feel free to reach out via [LinkedIn](https://www.linkedin.com/in/aniket-gupta-90b49725a/) or email.
